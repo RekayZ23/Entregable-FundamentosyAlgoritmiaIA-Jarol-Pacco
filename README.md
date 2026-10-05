@@ -1,1 +1,0 @@
-# Entregable-FundamentosyAlgoritmiaIA-Jarol-Pacco
